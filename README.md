@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ramoncho0o
 - 👀 I’m interested in arcade stick
-- 🌱 I’m currently learning all ofnut
+- 🌱 I’m currently learning all of it
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
